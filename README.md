@@ -1,1 +1,0 @@
-# normone.github.io
